@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Strategy and Communications
 
-I'm glad you are here. I plan to talk about ...
+Helping executives and their teams gain competetive advantage by developing and authentic connection with customers. 
